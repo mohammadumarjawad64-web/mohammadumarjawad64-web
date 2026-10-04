@@ -15,4 +15,4 @@ BSCS student from Karachi, Pakistan.
 - Coming soon
 
 ## 📫 Connect with me
-- LinkedIn: paste your LinkedIn link here
+- LinkedIn: https://www.linkedin.com/in/mohammad-umar-jawad-b80508253/
